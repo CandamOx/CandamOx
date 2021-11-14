@@ -1,0 +1,4 @@
+- Hi, I’m Redhead Deer 🦌
+- I’m interested in information security and QA 
+- I’m currently learning Java and C# Unity, I hope someday I'll create a game
+- 📫 Telegram: @redheaddeer 
